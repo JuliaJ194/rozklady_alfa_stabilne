@@ -1,0 +1,1 @@
+# rozklady_alfa_stabilne
